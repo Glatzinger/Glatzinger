@@ -1,0 +1,6 @@
+- 👋 Man nennt mich @Glatzinger.. KardinalGlatzinger
+- 👀 See ya
+- 🌱 Novize
+- 💞️ No Comment
+- 📫 Wenn was am Schnürchen läuft dann ne konsevation, mit nem Schrott Telefon aus 2 Konserven Dosen
+- Ansonsten... 
